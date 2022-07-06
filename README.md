@@ -1,0 +1,1 @@
+QA.GURU Python Course. Lesson 05 «Selene 50»
